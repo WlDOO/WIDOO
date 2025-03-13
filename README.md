@@ -1,4 +1,4 @@
-![c-line](https://github.com/user-attachments/assets/1b8d7d93-1e14-4b87-9181-01a71fd808ba)# Hi, I'm WIDOO! 👋
+# Hi, I'm WIDOO! 👋
 
 ![header](https://github.com/user-attachments/assets/172493d9-6bcb-4748-846f-ff191790fd0d)
 
